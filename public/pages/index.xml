@@ -1,0 +1,25 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Pages on </title>
+    <link>http://localhost:1313/pages/</link>
+    <description>Recent content in Pages on </description>
+    <generator>Hugo</generator>
+    <language>en-us</language>
+    <atom:link href="http://localhost:1313/pages/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>About</title>
+      <link>http://localhost:1313/pages/about/</link>
+      <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
+      <guid>http://localhost:1313/pages/about/</guid>
+      <description>&lt;p&gt;Stockholm Leather Social is an initiative to bring Leather subculture into the streets. We further the rich Leather history of our city by facilitating safe and approachable spaces to foster local community in a public setting. In doing so we promote queer visibility in Stockholm.&lt;/p&gt;&#xA;&lt;p&gt;We encourage gearing up for our events, but realize that not everybody is in the same place in their Leather journey. No matter your gear or how you identify, you are welcome at Stockholm Leather Social. We are unapologetically queer and kink-friendly.&lt;/p&gt;</description>
+    </item>
+    <item>
+      <title>FAQ</title>
+      <link>http://localhost:1313/pages/faq/</link>
+      <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
+      <guid>http://localhost:1313/pages/faq/</guid>
+      <description>&lt;h3 id=&#34;what-is-leather&#34;&gt;What is Leather?&lt;/h3&gt;&#xA;&lt;blockquote&gt;&#xA;&lt;p&gt;Leather is a style and culture that developed in the gay bars and&#xA;motorcycle clubs of the 1950s and 1960s. There are as many&#xA;definitions of Leather as there are Leatherpeople. Leather is a&#xA;style, an identity, a community, and a subculture that celebrates&#xA;kink, fetish, BDSM, and sex.&lt;/p&gt;&#xA;&lt;p&gt;&amp;mdash; &lt;a href=&#34;https://leatherarchives.libguides.com/whatisleather/&#34;&gt;Leather Archives &amp;amp; Museum&lt;/a&gt;&lt;/p&gt;&#xA;&lt;/blockquote&gt;&#xA;&lt;h3 id=&#34;what-is-gear&#34;&gt;What is gear?&lt;/h3&gt;&#xA;&lt;p&gt;Gear is the body of all of our Leather cultural expression, including&#xA;leather, rubber, and puppy/pet play outfits and accessories. Gear can&#xA;be part of play but many people enjoy wearing gear for social reasons&#xA;and don&amp;rsquo;t consider their gear to be at all sexual.&lt;/p&gt;</description>
+    </item>
+  </channel>
+</rss>

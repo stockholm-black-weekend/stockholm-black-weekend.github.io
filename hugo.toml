@@ -1,0 +1,19 @@
+baseURL = "https://stockholm-black-weekend.se"
+languageCode = 'en-us'
+theme = "coming-soon"
+
+[params]
+    title = " "
+    description = ""
+    favicon = ""
+    message = "STOCKHOLM BLACK WEEKEND"
+    release = "March 27, 2026"
+    background = ""
+
+socialIcons = [
+    {name = "instagram", url = "https://instagram.com/stockholm.black.weekend"},
+]
+
+[params.instagram]
+	enable = false
+	username = "stockholm.black.weekend"

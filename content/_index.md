@@ -36,3 +36,5 @@ title: "Home"
 # Contact
 
 Follow us on [Instagram](https://instagram.com/stockholm.black.weekend) for updates. [Contact us](mailto:stockholm.black.weekend@gmail.com) for inquiries.
+
+{{< figure src="partners.jpg" >}}

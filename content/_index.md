@@ -2,7 +2,7 @@
 title: "BACK TO BLACK"
 ---
 
-{{< figure src="bw_transparent.png" >}}
+{{< figure src="bw.png" >}}
 
 
 # UPCOMING PROGRAM

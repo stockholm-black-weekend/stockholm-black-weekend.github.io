@@ -1,5 +1,5 @@
 ---
-title: "About"
+title: "ABOUT"
 date: 2026-02-21
 ---
 
@@ -9,7 +9,7 @@ So it’s past due to bring back STOCKHOLM BLACK WEEKEND and once again invite a
 
 ---
 
-# Contact
+# CONTACT
 
 Follow us on [Instagram](https://instagram.com/stockholm.black.weekend) for updates. [Contact us](mailto:stockholm.black.weekend@gmail.com) for inquiries.
 

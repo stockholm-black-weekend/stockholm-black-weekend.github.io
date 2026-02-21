@@ -1,11 +1,11 @@
 ---
-title: "Home"
+title: "HOME"
 ---
 
 {{< figure src="bw_transparent.png" >}}
 
 
-# Upcoming Program
+# UPCOMING PROGRAM
 
 # Friday, March 27th
 
@@ -29,7 +29,7 @@ title: "Home"
 
 ---
 
-# 2026 Dates
+# 2026 DATES
 
 > 27-29 March
 >
@@ -41,7 +41,7 @@ title: "Home"
 
 ---
 
-# Contact
+# CONTACT
 
 Follow us on [Instagram](https://instagram.com/stockholm.black.weekend) for updates. [Contact us](mailto:stockholm.black.weekend@gmail.com) for inquiries.
 

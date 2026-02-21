@@ -7,6 +7,8 @@ In the 90s queers journeyed to Stockholm for its BLACK WEEKEND. At the time SLM 
 
 So it’s past due to bring back STOCKHOLM BLACK WEEKEND and once again invite all of you to Summer night city. We hope you join us in celebrating our booming leather community!
 
+See the home page for our program and dates.
+
 ---
 
 # CONTACT

@@ -1,10 +1,18 @@
 baseURL = "https://stockholm-black-weekend.se"
 languageCode = 'en-us'
 theme = "shibui"
+title = "BLACK WEEKEND"
 
-[params]
-    title = "BLACK WEEKEND"
-    description = ""
+[params.author]
+name = "Stockholm Black Weekend"
+email = "stockholm.black.weekend@gmail.com"
 
 [menu]
   [[menu.main]]
+    name = "Home"
+    url = "/"
+    weight = 1
+  [[menu.main]]
+    name = "About"
+    url = "/about/"
+    weight = 2

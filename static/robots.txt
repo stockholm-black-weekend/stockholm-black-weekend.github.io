@@ -1,0 +1,5 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://stockholm-black-weekend.se/sitemap.xml
+

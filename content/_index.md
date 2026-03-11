@@ -23,7 +23,7 @@ title: "BACK TO BLACK"
 
 # Sunday, March 29th
 
-> 15:00 [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ TBA
+> 15:00 [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ Drop Coffee
 >
 > 18:00 [Members Forum Pub](https://slmstockholm.se/events/2026-03-29-members-forum-pub/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
 

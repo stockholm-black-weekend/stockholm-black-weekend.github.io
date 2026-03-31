@@ -15,6 +15,8 @@ title: "BACK TO BLACK"
 
 # Saturday, June 27th
 
+> 14:00 [Exhibition]() @ [Kulturhuset Stadsteatern]()
+>
 > 19:00 [BLUF Dinner](https://instagram.com/blufstockholm) @ [Morfar Ginko](https://instagram.com/morfarginko_papparayray)
 >
 > 22:00 [Fetish Night](https://slmstockholm.se/events/2026-03-28-fetish-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)

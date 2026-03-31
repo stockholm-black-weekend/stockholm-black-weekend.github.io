@@ -15,8 +15,6 @@ title: "BACK TO BLACK"
 
 # Saturday, June 27th
 
-> 15:00 [Daytime Party](https://slmstockholm.se/events/2026-03-28-daytime-party-2/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
->
 > 19:00 [BLUF Dinner](https://instagram.com/blufstockholm) @ [Morfar Ginko](https://instagram.com/morfarginko_papparayray)
 >
 > 22:00 [Fetish Night](https://slmstockholm.se/events/2026-03-28-fetish-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)

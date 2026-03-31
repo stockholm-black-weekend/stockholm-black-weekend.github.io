@@ -25,7 +25,7 @@ title: "BACK TO BLACK"
 
 > 15:00 [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Drop Coffee](https://www.instagram.com/dropcoffeeshop/)
 >
-> 18:00 [Members Forum Pub](https://slmstockholm.se/events/2026-03-29-members-forum-pub/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
+> 17:00 [BDSM Night](https://slmstockholm.se/events/2026-03-29-members-forum-pub/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
 
 ---
 

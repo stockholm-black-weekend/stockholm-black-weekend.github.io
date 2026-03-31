@@ -7,13 +7,13 @@ title: "BACK TO BLACK"
 
 # UPCOMING PROGRAM
 
-# Friday, March 27th
+# Friday, June 26th
 
 > 20:00 [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
 > 22:00 [Cruising Night](https://slmstockholm.se/events/2026-03-27-cruising-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
 
-# Saturday, March 28th
+# Saturday, June 27th
 
 > 15:00 [Daytime Party](https://slmstockholm.se/events/2026-03-28-daytime-party-2/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
 >
@@ -21,7 +21,7 @@ title: "BACK TO BLACK"
 >
 > 22:00 [Fetish Night](https://slmstockholm.se/events/2026-03-28-fetish-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
 
-# Sunday, March 29th
+# Sunday, June 28th
 
 > 15:00 [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Drop Coffee](https://www.instagram.com/dropcoffeeshop/)
 >
@@ -31,7 +31,7 @@ title: "BACK TO BLACK"
 
 # 2026 DATES
 
-> 27-29 March
+> ~27-29 March~
 >
 > 26-28 June
 >

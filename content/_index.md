@@ -15,7 +15,7 @@ title: "BACK TO BLACK"
 
 # Saturday, June 27th
 
-> 14:00 [Exhibition]() @ [Kulturhuset Stadsteatern]()
+> 14:00 [Elisabeth Ohlson Retrospektiv]() @ [Kulturhuset Stadsteatern]()
 >
 > 19:00 [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]()
 >

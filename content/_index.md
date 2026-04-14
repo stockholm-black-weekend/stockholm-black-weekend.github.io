@@ -11,7 +11,7 @@ title: "BACK TO BLACK"
 
 > 20:00 [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
-> 22:00 [Cruising Night](https://slmstockholm.se/events/2026-03-27-cruising-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
+> 22:00 [Cruising Night](https://slmstockholm.se/events/2026-06-26-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/)
 
 # Saturday, June 27th
 
@@ -19,13 +19,13 @@ title: "BACK TO BLACK"
 >
 > 19:00 * [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]()
 >
-> 22:00 [Fetish Night](https://slmstockholm.se/events/2026-03-28-fetish-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
+> 22:00 [Fetish Night](https://slmstockholm.se/events/2026-06-27-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/)
 
 # Sunday, June 28th
 
 > 15:00 [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
 >
-> 17:00 [BDSM Night](https://slmstockholm.se/events/2026-03-29-members-forum-pub/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
+> 17:00 [BDSM Night](https://slmstockholm.se/events/2026-06-28-group-bdsm/?lang=en) @ [SLM](https://slmstockholm.se/en/)
 
 \* _Reservation or RSVP required_
 

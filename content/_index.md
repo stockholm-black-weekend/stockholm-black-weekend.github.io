@@ -15,9 +15,9 @@ title: "BACK TO BLACK"
 
 # Saturday, June 27th
 
-> 14:00 [Elisabeth Ohlson Retrospektiv]() @ [Kulturhuset Stadsteatern]()
+> 14:00 * [Elisabeth Ohlson Retrospektiv]() @ [Kulturhuset Stadsteatern]()
 >
-> 19:00 [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]()
+> 19:00 * [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]()
 >
 > 22:00 [Fetish Night](https://slmstockholm.se/events/2026-03-28-fetish-night/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
 
@@ -26,6 +26,8 @@ title: "BACK TO BLACK"
 > 15:00 [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
 >
 > 17:00 [BDSM Night](https://slmstockholm.se/events/2026-03-29-members-forum-pub/?lang=en) @ [SLM](https://instagram.com/slmsthlm)
+
+\* _Reservation or RSVP required_
 
 ---
 

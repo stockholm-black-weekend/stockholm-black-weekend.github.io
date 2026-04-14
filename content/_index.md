@@ -29,6 +29,8 @@ title: "BACK TO BLACK"
 
 \* _Reservation or RSVP required_
 
+_[Apply for membership to attend SLM events.](https://slmstockholm.se/en/become-member/)_
+
 ---
 
 # 2026 DATES

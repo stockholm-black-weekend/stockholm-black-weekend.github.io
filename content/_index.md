@@ -13,14 +13,14 @@ title: "BACK TO BLACK"
 
 # Friday, June 26th
 
-> 14:00 \[ \] [Beer Bust BBQ]() @ [SLM]()
->
 > 20:00 \[ \] [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
 > 22:00 \[s\] [Cruising Night](https://slmstockholm.se/events/2026-06-26-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
 # Saturday, June 27th
 
+> 12:00 \[ \] [Beer Bash BBQ]() @ [SLM]()
+>
 > 15:00 \[*\] [Elisabeth Ohlson Retrospektiv](https://tix.kulturhusetstadsteatern.se/sv/buyingflow/tickets/31427/127563/) @ [Kulturhuset](https://kulturhusetstadsteatern.se/)
 >
 > 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]() (dress code)

@@ -19,8 +19,6 @@ title: "BACK TO BLACK"
 
 # Saturday, June 27th
 
-> 12:00 \[ \] [Beer Bash BBQ]() @ [SLM]()
->
 > 15:00 \[*\] [Elisabeth Ohlson Retrospektiv](https://tix.kulturhusetstadsteatern.se/sv/buyingflow/tickets/31427/127563/) @ [Kulturhuset](https://kulturhusetstadsteatern.se/)
 >
 > 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]() (dress code)

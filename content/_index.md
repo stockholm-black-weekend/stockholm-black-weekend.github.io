@@ -21,7 +21,7 @@ title: "BACK TO BLACK"
 
 > 15:00 \[*\] [Elisabeth Ohlson Retrospektiv](https://tix.kulturhusetstadsteatern.se/sv/buyingflow/tickets/31427/127563/) @ [Kulturhuset](https://kulturhusetstadsteatern.se/)
 >
-> 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]() (dress code)
+> 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [Location](https://maps.app.goo.gl/XUSMEYoQa4a2m9gZ7) (dress code)
 >
 > 22:00 \[s\] [Fetish Night](https://slmstockholm.se/events/2026-06-27-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 

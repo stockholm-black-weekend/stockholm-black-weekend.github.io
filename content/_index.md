@@ -27,8 +27,6 @@ title: "BACK TO BLACK"
 
 # Sunday, June 28th
 
-> 11:30 \[ \] [Beer Bash BBQ]() @ [SLM]()
->
 > 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/Hu1GoiwivWeBj5Ko9)
 >
 > 17:00 \[s\] [BDSM Night](https://slmstockholm.se/events/2026-06-28-group-bdsm/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)

@@ -7,27 +7,25 @@ title: "BACK TO BLACK"
 
 # UPCOMING PROGRAM
 
-# Thursday, June 25th
+# Thursday, August 27th
 
 > 18:00 \[w\] [Club Wish](https://instagram.com/clubwishsthlm) @ [SLM](https://slmstockholm.se/en/) (no cis-men, dress code)
 
-# Friday, June 26th
+# Friday, August 28th
 
 > 20:00 \[ \] [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
 > 22:00 \[s\] [Cruising Night](https://slmstockholm.se/events/2026-06-26-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
-# Saturday, June 27th
+# Saturday, August 29th
 
-> 15:00 \[*\] [Elisabeth Ohlson Retrospektiv](https://tix.kulturhusetstadsteatern.se/sv/buyingflow/tickets/31427/127563/) @ [Kulturhuset](https://kulturhusetstadsteatern.se/)
->
-> 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [Location](https://maps.app.goo.gl/XUSMEYoQa4a2m9gZ7) (dress code)
+> 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]() (dress code)
 >
 > 22:00 \[s\] [Fetish Night](https://slmstockholm.se/events/2026-06-27-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
-# Sunday, June 28th
+# Sunday, August 30th
 
-> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/Hu1GoiwivWeBj5Ko9)
+> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
 >
 > 17:00 \[s\] [BDSM Night](https://slmstockholm.se/events/2026-06-28-group-bdsm/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
@@ -43,7 +41,7 @@ w _[Wish membership required. Apply before doors open](https://www.clubwish.se/a
 
 > ~27-29 March~
 >
-> 25-28 June
+> ~25-28 June~
 >
 > 27-30 August
 >

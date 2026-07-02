@@ -15,23 +15,23 @@ title: "BACK TO BLACK"
 
 > 20:00 \[ \] [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
-> 22:00 \[s\] [BW Cruising](https://slmstockholm.se/events/2026-08-28-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 22:00 \[s\] [Cruising](https://slmstockholm.se/events/2026-08-28-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
 # Saturday, August 29th
 
-> 18:00 \[s\] [BW Pups](https://slmstockholm.se/events/2026-08-29-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 18:00 \[s\] [Pups](https://slmstockholm.se/events/2026-08-29-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 >
 > 15:00 \[ ] [City Hall Tour]() @ [Stockholms stadshus]()
 >
 > 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]() (dress code)
 >
-> 22:00 \[s\] [BW Fetish](https://slmstockholm.se/events/2026-08-29-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 22:00 \[s\] [Fetish](https://slmstockholm.se/events/2026-08-29-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
 # Sunday, August 30th
 
 > 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
 >
-> 17:00 \[s\] [BW BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 17:00 \[s\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
 \* _Ticket or reservation required. See program details_
 

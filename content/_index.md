@@ -21,6 +21,8 @@ title: "BACK TO BLACK"
 
 > 18:00 \[s\] [BW Pups](https://slmstockholm.se/events/2026-08-29-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 >
+> 15:00 \[ ] [City Hall Tour]() @ [Stockholms stadshus]()
+>
 > 19:00 \[*\] [BLUF Dinner](https://instagram.com/blufstockholm) @ [TBA]() (dress code)
 >
 > 22:00 \[s\] [BW Fetish](https://slmstockholm.se/events/2026-08-29-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)

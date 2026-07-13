@@ -29,7 +29,7 @@ title: "BACK TO BLACK"
 
 # Sunday, August 30th
 
-> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
+> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/ZcBfikHxrxSo6BUQ7)
 >
 > 17:00 \[s\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 

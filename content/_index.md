@@ -19,7 +19,7 @@ title: "BACK TO BLACK"
 
 # Saturday, August 29th
 
-> 15:00 \[ ] [Guided Tour]() @ [TBA]()
+> 13:00 \[ ] [City Hall Tour](https://forms.gle/egSTY9uKXkPosuqr5) @ [Stockholms stadshus](https://stadshuset.stockholm/)
 >
 > 18:00 \[s\] [Pups](https://slmstockholm.se/events/2026-08-29-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 >

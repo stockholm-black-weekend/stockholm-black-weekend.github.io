@@ -13,6 +13,8 @@ title: "BACK TO BLACK"
 
 # Friday, August 28th
 
+> 19:00 \[*\] [Pup Play: A Queer Pseudo-lecture (of sorts)](https://stoff.ssboxoffice.com/events/pup-play-a-queer-pseudo-lecture-of-sorts/) @ [Teater Tre](https://www.teatertre.se/)
+>
 > 20:00 \[ \] [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
 > 22:00 \[s\] [Cruising](https://slmstockholm.se/events/2026-08-28-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
@@ -32,6 +34,8 @@ title: "BACK TO BLACK"
 > 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/ZcBfikHxrxSo6BUQ7)
 >
 > 17:00 \[s\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+>
+> 18:00 \[*\] [Pup Play: A Queer Pseudo-lecture (of sorts)](https://stoff.ssboxoffice.com/events/pup-play-a-queer-pseudo-lecture-of-sorts/) @ [Teater Tre](https://www.teatertre.se/)
 
 \* _Ticket or reservation required. See program details_
 

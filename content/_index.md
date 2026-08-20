@@ -55,6 +55,18 @@ w _[Wish membership required. Apply before doors open](https://www.clubwish.se/a
 >
 > 26-29 November
 
+# 2027 DATES
+
+> 28-31 January
+>
+> 18-21 March
+>
+> 17-20 June
+>
+> 26-29 August
+>
+> 25-28 November
+
 ---
 
 # CONTACT

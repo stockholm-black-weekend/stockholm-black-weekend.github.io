@@ -7,35 +7,31 @@ title: "BACK TO BLACK"
 
 # UPCOMING PROGRAM
 
-# Thursday, August 27th
+# Thursday, November 26th
 
 > 18:00 \[w\] [Club Wish](https://instagram.com/clubwishsthlm) @ [SLM](https://slmstockholm.se/en/) (no cis-men, dress code)
 
-# Friday, August 28th
+# Friday, November 27th
 
-> 19:00 \[*\] [Pup Play: A Queer Pseudo-lecture](https://stoff.ssboxoffice.com/events/pup-play-a-queer-pseudo-lecture-of-sorts/) @ [Teater Tre](https://www.teatertre.se/)
->
 > 20:00 \[ \] [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
-> 22:00 \[s\] [Cruising](https://slmstockholm.se/events/2026-08-28-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 22:00 \[s\] [Cruising](https://slmstockholm.se/events/2026-11-27-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
-# Saturday, August 29th
+# Saturday, November 28th
 
-> 13:00 \[*\] [City Hall Tour](https://forms.gle/egSTY9uKXkPosuqr5) @ [Stockholms stadshus](https://stadshuset.stockholm/)
+> 13:00 \[*\] [Tour]() @ [TBA](TBA)
 >
-> 18:00 \[s\] [Pups](https://slmstockholm.se/events/2026-08-29-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 19:00 \[*\] [BLUF Dinner](https://www.instagram.com/blufstockholm/) @ [TBA]() (dress code)
 >
-> 19:00 \[*\] [BLUF Dinner](https://luma.com/v43krjf4) @ [Lyckan i Tanto](https://www.lyckanitanto.se/) (dress code)
+> 18:00 \[s\] [Pups](https://slmstockholm.se/events/2026-11-28-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 >
-> 22:00 \[s\] [Fetish](https://slmstockholm.se/events/2026-08-29-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 22:00 \[s\] [Fetish](https://slmstockholm.se/events/2026-11-28-fetish-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
-# Sunday, August 30th
+# Sunday, November 29th
 
-> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/ZcBfikHxrxSo6BUQ7)
+> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
 >
-> 17:00 \[s\] [BDSM](https://slmstockholm.se/events/2026-09-06-group-bdsm/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
->
-> 18:00 \[*\] [Pup Play: A Queer Pseudo-lecture](https://stoff.ssboxoffice.com/events/pup-play-a-queer-pseudo-lecture-of-sorts/) @ [Teater Tre](https://www.teatertre.se/)
+> 17:00 \[s\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 
 \* _Ticket or reservation required. See program details_
 
@@ -51,7 +47,7 @@ w _[Wish membership required. Apply before doors open](https://www.clubwish.se/a
 >
 > ~25-28 June~
 >
-> 27-30 August
+> ~27-30 August~
 >
 > 26-29 November
 

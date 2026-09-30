@@ -19,8 +19,6 @@ title: "BACK TO BLACK"
 
 # Saturday, November 28th
 
-> 13:00 \[*\] [Tour]() @ [TBA](TBA)
->
 > 19:00 \[*\] [BLUF Dinner](https://www.instagram.com/blufstockholm/) @ [TBA]() (dress code)
 >
 > 18:00 \[s\] [Pups](https://slmstockholm.se/events/2026-11-28-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
@@ -29,7 +27,9 @@ title: "BACK TO BLACK"
 
 # Sunday, November 29th
 
-> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [TBA]()
+> 13:00 \[*\] [Guided tour](https://forms.gle/qjBf9ChSA6X7Lp6f7) @ [Riksdagshuset](https://maps.app.goo.gl/f2znbCTkToF3a2Mm9)
+>
+> 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/fnByfYw6hqFgMWXg9)
 >
 > 17:00 \[s\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 

@@ -31,7 +31,7 @@ title: "BACK TO BLACK"
 >
 > 15:00 \[ \] [Proteus Leather Fika](https://instagram.com/proteuslthrswe) @ [Johan & Nyström](https://maps.app.goo.gl/fnByfYw6hqFgMWXg9)
 >
-> 17:00 \[s\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
+> 17:00 \[s\w\] [BDSM]() @ [SLM](https://slmstockholm.se/en/) (dress code)
 
 \* _Ticket or reservation required. See program details_
 

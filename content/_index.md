@@ -19,6 +19,8 @@ title: "BACK TO BLACK"
 
 # Saturday, November 28th
 
+> 13:00 \[ \] [Exhibition]() @ [SLM](https://slmstockholm.se/en/)
+>
 > 19:00 \[*\] [BLUF Dinner](https://www.instagram.com/blufstockholm/) @ [TBA]() (dress code)
 >
 > 18:00 \[s\] [Pups](https://slmstockholm.se/events/2026-11-28-group-pups/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)

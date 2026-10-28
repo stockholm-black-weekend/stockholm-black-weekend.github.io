@@ -13,7 +13,7 @@ title: "BACK TO BLACK"
 
 # Friday, November 27th
 
-> 20:00 \[ \] [Stockholm Leather Social](https://instagram.com/stockholm.leather.social) @ [Side Track](https://instagram.com/sidetrack_sthlm)
+> 20:00 \[ \] [Stockholm Leather Social](https://stockholm-leather-social.se/) @ [Side Track](https://instagram.com/sidetrack_sthlm)
 >
 > 22:00 \[s\] [Cruising](https://slmstockholm.se/events/2026-11-27-cruising-night/?lang=en) @ [SLM](https://slmstockholm.se/en/) (men only, dress code)
 

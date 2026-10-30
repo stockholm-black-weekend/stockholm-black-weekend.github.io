@@ -19,7 +19,7 @@ title: "BACK TO BLACK"
 
 # Saturday, November 28th
 
-> 13:00 \[ \] [Exhibition]() @ [SLM](https://slmstockholm.se/en/)
+> 13:00 \[ \] [Exhibition: (For) Generations of Queers]() @ [SLM](https://slmstockholm.se/en/)
 >
 > 19:00 \[*\] [BLUF Dinner](https://www.instagram.com/blufstockholm/) @ [TBA]() (dress code)
 >
